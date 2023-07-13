@@ -1,0 +1,5 @@
+- 👋🏻  Hello, My Name Is Amber (@AmberDB88)
+- 👀 I’m interested in Figuring Out How All Of This Stuff Works, It Seems Very Interesting.
+- 🌱 I’m currently learning What Ever I Can, Nothing Specific Right Now. 
+- 💞️ I’m looking to collaborate on.. (I Will Come Back To Answer This Question Once I Learn What Everything Is About & What Everything Does.)
+- 📫 How to reach me... AmberDB88@github.com/AmberDB88@Gmail.com/Amberbruening096@Gmail.com
